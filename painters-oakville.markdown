@@ -65,20 +65,28 @@ We recommend the best products and finish options from Sherwin-Williams, Dulux, 
 
 \
 [Painters Oakville](https://g.page/paintersoakville/)​\
+
 \
 2160 Heathcliff Ct, Oakville, ON L6M 0A5\
+
 \
 \(289) 203-7075\
+
 \
 [https://painters-oakville.ca/](https://painters-oakville.ca/)\
+
 \
 [https://g.page/paintersoakville/](https://g.page/paintersoakville/)\
+
 \
 paintersoakville@gmail.com\
+
 \
 [Google Site](https://sites.google.com/view/paintersoakville/),[Sheet](https://docs.google.com/spreadsheets/d/e/2PACX-1vRqKxX3mthwfutuffudQ69bshlnu6gXwTqDde-F_5r4_oIAGOQIRYfw0Ps9_91QkHsI1hGNr1NY63lj/pubhtml),[Doc](https://docs.google.com/document/d/e/2PACX-1vRhfC88rYqI4DvvZU_Wk4LifCi3t3ArY5sISeFZqDbUFY3q1qpWy7e9JvQmB2rXRHmz3A8PhutpMZl_/pub),[Slide](https://docs.google.com/presentation/d/e/2PACX-1vS5x0ZB6iBq7zng8Jql3AMKabMRJczDHjP6Fd-z1MtEqPGowJfYcrID4D93SyvNIdOCPkBLuTewdWVZ/pub?start=false&loop=false&delayms=3000),[Drawing](https://docs.google.com/drawings/d/e/2PACX-1vTSiRT_3HNTsrEdb69YGrLL3XHWVBDnnrNghsl0BC0l-ZZ8YIsz5YI0LIfZM0J7P-4CfvE2-M2aNloK/pub?w=1586&h=664),[My maps](https://www.google.com/maps/d/u/5/viewer?mid=1YHS83BX7L-KJk9Z31d3Y0Hl8giesp_-a&ll=43.42417840000002%2C-79.76874950000001&z=17)\
+
 \
 [Facebook](https://www.facebook.com/pg/Painters-Oakville-2429988017023955),[Pinterest](https://www.pinterest.com/paintersoakville/),[Linkedin](http://www.linkedin.com/in/painters-oakville)\
+
 \
 [Wordpress](https://paintersoakville.wordpress.com/),[Blogspot](https://paintersoakville.blogspot.com/),[Weebly](https://painters-oakville.weebly.com/),[Wix](https://paintersoakville.wixsite.com/home),[Tumblr](https://paintersoakville.tumblr.com/)\
 **[\
